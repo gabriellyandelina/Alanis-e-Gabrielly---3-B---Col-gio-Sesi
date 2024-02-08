@@ -1,2 +1,2 @@
-# Alanis-e-Gabrielly---3-B---Col-gio-Sesi
+# Alanis Gabrielly 3-B- Colegio-Sesi
 Equipe 06
